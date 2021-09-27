@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning to use goddot
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me:
-                        DISCORD --> 🅵🅴🅽🅽🆈#1679
+                        DISCORD --> fenny#1679
